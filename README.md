@@ -13,3 +13,5 @@ _ 🌟 *I'm like to speak and learn new lenguages.* *(i am brazilian, 16 years o
 ### *(Você pode entrar em contato comigo pelo gmail/You can talk to me via this gmail)*
 
 00001122828093sp@al.educacao.sp.gov.br 📧
+
+![](https://media1.tenor.com/m/EVyJsWpYmoAAAAAd/diluc-genshin-impact.gif)

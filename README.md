@@ -14,5 +14,4 @@ _ 🌟 *I'm like to speak and learn new lenguages.* *(i am brazilian, 16 years o
 
 00001122828093sp@al.educacao.sp.gov.br 📧
 
-![](![image](https://github.com/user-attachments/assets/63dbec83-2e16-4320-b977-3f2b560f2315)
-)
+![](https://media1.tenor.com/m/5kWxqeyZRtsAAAAd/zhongli-xiao.gif)
